@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Just a student with weird ideas
+Just an engineering student with weird ideas
